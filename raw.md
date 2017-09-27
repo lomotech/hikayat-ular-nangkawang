@@ -1,5 +1,3 @@
-http://www.bl.uk/manuscripts/Viewer.aspx?ref=mss_malay_a_1_fs001r
-
 ## f.1r
 1. bismillahirahmanirahim
 2. surah alfatihah alkitab sabaah ayat[^ Perkataan yang ada pada permulaan hikayat]
