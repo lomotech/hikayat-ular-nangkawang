@@ -1,3 +1,5 @@
+http://www.bl.uk/manuscripts/Viewer.aspx?ref=mss_malay_a_1_fs001r
+
 ## f.1r
 1. bismillahirahmanirahim
 2. surah alfatihah alkitab sabaah ayat[^ Perkataan yang ada pada permulaan hikayat]
@@ -262,5 +264,96 @@
 11. kumtum bunga isi taman itupun habislah
 12. tersenym sebab memandang keeolakkan rua parannya
 13. tuan puteri itu maka sekalian bunga bungaan yang di dalam
+
+## f.10v
+
+1. taman itu maka yang mendapatkan tuan puteri seraya
+2. berkata sila kepalam tuanku mari masuk ketaman ini
+3. maka bungaa itupun berpantun demikian bunyinya terang
+4. perut tangkinya genjar kedua dengan buat bidara
+5. barat kapi ketemur hendak mencahari sama setara
+6. sanggar bertemu di pendung  tidak maka tuan puteri pun
+7. hiranyalah seraya berkata indahnya sekalian
+8. isi taman itu sedangkan bunga lagi pundinya
+9. berpantun mengajuk kita setelah sudah ia berpantun
+10. maka bunga itupun terbang maka kembang pula terbang datang
+11. berwang-wang  ... pohon seroja maka bunga
+12. seroja itupun mengarangkan dirinya ...
+13. maka kembang itupun berkata ya .. tuan puteri
+
+## f.11r
+1. terlalu sekali indah indah isi taman itu sangat...
+2. hidup melihat orang yang baik perasaan maka bahawa
+3. inilah dikampikan oleh dewata mulia raya akan sekalian
+4. kami belum bertemu tuangku maka kembang itupun berpantun
+5. pula demikian bynyinya dang jinarat berbaju biru
+6. bersunting bunga naga sari jambungannya daripada
+7. dahul maka tuan puteri kapi kemari maka tuang puteri
+8. tersenyum mengerpatan kembang itu maka kata tuan
+9. puter telalu bijak sekali isi taman ini
+10. sedangkan kembang lagipandai ia berpantun mengajuk
+11. kita malu pul aku maka tuang puteri pun berjalanlah
+12. di dalam taman iti maka kuntum naga sari pun tersenyum
+13. melihat rupa tuan puteri berkalan itu gilang gemilang 
+
+## f.11.v
+1. cahaya tubuhnya maka muri pun berbisik seraya berkata
+2. silakan tuang puteri suatu pun tidak
+3. persembahan patik hanyalah bunga yang amat harum
+4. akan barang kumtumnya pada kebawah duli tuanku maka tuang puteri
+5. pun tersenyum seraya berkata heranlah sakali aku ini
+6. melihatkan isi taman ini sedangkan muri lelaki
+7. munkar kita selalu bijak maka tuangputeri pun mengetas
+8. bunga bunganya lalu dipersuntingkannya maka bunga itiupun
+9. mengarang sendiri menjadi tajuk mali maka tuang puteri pun berjalanlan pula maka dilihat bunga
+10. tujuh tangkai maka bunga itupun mengeringkan dirinya
+11. lalu mengetaskan dirinya daripada pohonnya datanglah
+
+## f.12r
+1. mendapatkan tuangputeri seraya berkata ya tuang puteri
+2. berlalulah rindu kami akan tuangku maka tuan puterinya
+3. bersenyumlahs eraya berkata hairan kami kana memandang
+4. bunga ini suatu sebagai pulanya sangat minta
+5. dipersuntingkannya maka bunga itupun tertawa mungar
+6. katanya tuang uteri itu maka lalu ia mengubahkan diriknya
+7. menjadi tajuk mali tuan puteri pun bersunting
+8. tajuk bunga angsuka maka kata bipachan ya tuanputeri
+9. baiklah silakan tuangku mandi kekolam jambangan
+10. emas berairkan sedirinya maka tuangpueri pergilah
+11. lalu naik keatas balai itu ia duduk mengubah
+12. bunga diatas kursi yang keemasan mengubahkan dengan 
+13. cengkihnya diselang dengan bunga pakan dan bunga nagasari
+
+## f.12v
+1. maka patut dengan bunga bungaan cempaka gunung maka
+2. di isinya dengan cumbu cumbuan maka lalu dipersuntingkan seraya
+3. tersenyum seraya katanya hai bipachan lihatlah aku berseunting
+4. bunga ini adakah berseri sei rupaku ini daripada sekalian
+5. isi taman ini bertambah tambah manis daripada aku ini 
+6. adakah patut dengan rupaku maka sembah bipachan seraya
+7. tertaawa mungar kata tuang puteri itu maka katanya ba tuangku
+8. makan bertambah tambah manis berseri seri ripa tuangku patik
+9. lihat jika paduka ... gerangan melihat rupa tuangku ini
+10. nescaya lupalah gerangan makan dan minum tidur melenakan 
+11. cahaya tuangku jugak perhatinya dan pandang pandanga pada
+12. matanya maka tuan puteri pun tertawa seraya batanya aku
+13. pun demikian juga barang di ... oleh dewata
+
+## f.13r
+1. mulia raya juga kiranya seperti kata engkat itu maka kata
+2. bipachan yatuanku baik juga tuangku mandi kekolam itu
+3. mana dilihat terlalu .. perbuatan kolam itu
+4. airnya terlalau juga nirbawanya seperti air mawak maka ia
+5. dilihat oleh tuan puteri bunga tanjung terlalu indah
+6. dan bunga telipuk dan segala bunga berbagai baga jenis
+7. rupanya dan ikan didalam kolam itupun terlalu
+8. permintaannya di ... dan sisipnya itu
+9. daripada emas dan perak dan suasa maka segala karang karang
+10. an di dalam kolam itu pun berbagai bagai jenis dupanya
+11. maka sekaliannya itupun di ... menegur tuang puteri
+12. makan anginpun bertuap tiup lemah lembu maka air di dalam
+13. kolam itupun berombak ombak terlalulah permai rupanya
+
+
  
 http://www.bl.uk/manuscripts/Viewer.aspx?ref=mss_malay_a_1_f010v
